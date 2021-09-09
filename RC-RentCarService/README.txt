@@ -14,5 +14,6 @@ start RC-RentCarService
 Thanks for downloading this Script :)
 Please give me a feedback
 
-DISCORD: https://discord.gg/PqVdjxK2aC
+DISCORD: Nah MAMA
+
 For more Scripts
